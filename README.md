@@ -4,7 +4,7 @@ I'm Riccardo Bernardi,
 
 I'm currently studying for a Master's Degree in Artificial Intelligence.
 
-I'm seeking for a phd position so if you know about this just write please:)
+I'm seeking for a phd position so if you know about this write me please:)
 
 You can find me here: 
 
